@@ -20,3 +20,4 @@
 18. Sit on an orange chair.
 19. Fake laugh as loud as you can.
 20. Do steps one to three and then skip the rest and relax.
+<a href='https://learn.co/lessons/hs-instruction-challenge' data-visibility='hidden'>View this lesson on Learn.co</a>
